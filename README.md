@@ -1,1 +1,0 @@
-# humas.ditlantas-poldajatim.org
